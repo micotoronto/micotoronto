@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=primalmercy&color=d7d7d7&style=plastic&label=‿‿⠀cursed⠀spirits)
+![](https://komarev.com/ghpvc/?username=primalmercy&color=E8D1D4&style=plastic&label=‿‿⠀porcelain)
 ---
 <p align="center">𓎢𓎠𓎟𓎠𓎢ㅤㅤ˙ㅤㅤ𓎢𓎠𓎟𓎠𓎢</p>
 
