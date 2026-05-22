@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=primalmercy&color=182B4B&style=plastic&label=shot)
+![](https://komarev.com/ghpvc/?username=primalmercy&color=182B4B&style=plastic&label=senses)
 ---
 <p align="center">  ───────── ꒰ა ໒꒱ ─────────</p>
 
