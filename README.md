@@ -6,4 +6,5 @@
 
 
 
-remaking (finishing in 20 years)
+i have no motivation to make my gh profile cute go read my rentry instead
+also is it obvious i love mico
