@@ -6,7 +6,7 @@
 
 
 
-i have no motivation to make my gh profile cute go read my rentry instead
+i have no motivation to make my gh pretty cute go read my rentry instead
 
 
 also decayed&decrepit fans plzzz plzz plzz interatc if u see me
